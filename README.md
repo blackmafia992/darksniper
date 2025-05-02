@@ -3,7 +3,7 @@ Telegram Member Scraper &amp; Adder Tool
 
 Software is Paid 
 
-Price 5$ only dm me 
+Price 50$ only dm me 
 
 My Youtube link Check how its work 
 
